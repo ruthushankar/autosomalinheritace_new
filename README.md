@@ -1,0 +1,1 @@
+# autosomalinheritace_new
